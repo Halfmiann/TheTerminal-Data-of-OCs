@@ -1,1 +1,0 @@
-# TheTerminal-Data-of-OCs
